@@ -7,4 +7,4 @@ Jetzt schreibe ich hier noch mehr Kram rein. KEKW
 ## was passiert jetzt?
 Niemand weiß
 
-GUTEN TAG
+GUTEN TAG -> Gute Nacht
